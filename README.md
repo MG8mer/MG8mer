@@ -62,12 +62,14 @@ Finally, watch this ~rickroll~ [cool video!](https://www.youtube.com/watch?v=dQw
 ~Sorry if you fell for it, I had to~
 
 ---
-Anyways, I think I've said everything I need to ~get an A~
+Anyways, I think I've said everything I need to! ~get an A~
 
 Have a wonderful day!
 
 ♛♛♛♛♛♛♛♛
+
 Goodbye!
+
 ♛♛♛♛♛♛♛♛
 
 ---

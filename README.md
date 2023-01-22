@@ -1,3 +1,4 @@
+![IMG_20220716_190438](https://user-images.githubusercontent.com/123292179/213920639-223fb918-814d-41f2-ab66-cbcbe9497014.jpg)
 **MG8mer/MG8mer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 # Greetings Fellow Explorer!:mate:

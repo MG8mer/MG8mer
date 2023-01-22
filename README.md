@@ -43,7 +43,7 @@ Of course, any person could go on for hours on their complex personality and tra
 But before I go, I must show you some cool **(but potentially peculiar so tread carefully)** things!:
 
 ---
-Here is fanart of a Minecraft youtuber named Technoblade *(who passed away in 2022 may he rest in peace)* drawn by my best friend's sister
+Here is fanart of a Minecraft youtuber named Technoblade *(who passed away in 2022 may he rest in peace)* drawn by my best friend's sister:
 
 <img width="395" alt="TechnoPiggy" src="https://user-images.githubusercontent.com/123292179/213920944-6d4362b9-9bec-442e-94f5-11aa47243841.png">
 

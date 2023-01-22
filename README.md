@@ -59,4 +59,17 @@ I have the `ENFJ-T` personality type, which is referred to as *Protaginist* on t
 ---
 Finally, watch this ~rickroll~ [cool video!](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstley)
 
+~Sorry if you fell for it, I had to~
+
+---
+Anyways, I think I've said everything I need to ~get an A~
+
+Have a wonderful day!
+
+♛♛♛♛♛♛♛♛
+Goodbye!
+♛♛♛♛♛♛♛♛
+
+---
+
 

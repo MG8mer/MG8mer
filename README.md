@@ -3,7 +3,12 @@
 # Greetings Fellow Explorer!:mate:
 
 > Read this to get an idea on who I am! :person_in_tuxedo:
+
+![Gigachad](https://user-images.githubusercontent.com/123292179/214225687-4a0f6412-551f-4c70-babc-bc1d996b78fd.jpeg)
 ---
+
+## Origins
+
 *Hello there!*
 
 I am yours truly MG8mer, or outside of the online domain Muhammad Hammouri. Let's start with some basic facts and origins:
@@ -27,6 +32,8 @@ I am yours truly MG8mer, or outside of the online domain Muhammad Hammouri. Let'
   **And that pretty much sums up my origins.**
 
 ---
+## Personality & Hobbies
+
 In general, I have a decently positive outlook on life, and therefore I enjoy a variety of different things.
 
 As an ambitious teenager I am very fascianted and interested in technology and computers, and I am aiming for a career that turns that passion into pursing fruitful objectives and logical challenges, more specifically Computer Sceince, hence why I am taking the course at my school! :computer:
@@ -43,6 +50,8 @@ Of course, any person could go on for hours on their complex personality and tra
 But before I go, I must show you some cool **(but potentially peculiar so tread carefully)** things!:
 
 ---
+## Technoblade
+
 Here is fanart of a Minecraft youtuber named Technoblade *(who passed away in 2022 may he rest in peace)* drawn by my best friend's sister:
 
 <img width="395" alt="TechnoPiggy" src="https://user-images.githubusercontent.com/123292179/213920944-6d4362b9-9bec-442e-94f5-11aa47243841.png">
@@ -50,6 +59,8 @@ Here is fanart of a Minecraft youtuber named Technoblade *(who passed away in 20
 I typically have it as my profile picture in most places, the art is just absolutely incredible and its a way to honor the noble Technoblade, even if its long after his death.
 
 ---
+## 16personalities
+
 [Here is another cool thing you can check out](16personalities)
 
 The website is a very detailed personality test that takes around 10 minutes to complete, and after completion the website gives you a personality that *(according to most people)* provides a **scarily** accurate overview of their personality.
@@ -57,11 +68,15 @@ The website is a very detailed personality test that takes around 10 minutes to 
 I have the `ENFJ-T` personality type, which is referred to as *Protaginist* on the website, take the test and check out your and other peronalities!
 
 ---
+## Cool Video?
+
 Finally, watch this ~rickroll~ [cool video!](https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstley)
 
 ~Sorry if you fell for it, I had to.~
 
 ---
+## Farewell Explorer
+
 Anyways, I think I've said everything I need to! ~get an A~
 
 Have a wonderful day!
